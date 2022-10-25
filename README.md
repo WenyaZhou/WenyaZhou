@@ -1,4 +1,4 @@
-👋 Hi, I’m @WenyaZhou and now work as a headhunter hiring tech and product related roles for high-tech leading companies including trading firms, software, internet, startups. 
+👋 Hi, I’m @WenyaZhou and now work as a hunting consultant hiring tech and product related roles for high-tech leading companies including trading firms, software, internet, startups. 
 
 🪁 Personally, 
 - 📖 I love to explore new things to stay vibrant and excited 😆 .
